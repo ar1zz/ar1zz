@@ -1,0 +1,5 @@
+- 🦇  Oi, sou o Despo.
+- 📚  Gosto de livros.
+- 🍊  Hinata Shoyo.
+- 🌴  Meu estilo é simples.
+- 🤙🏻  Só isso.
